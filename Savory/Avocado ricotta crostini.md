@@ -14,7 +14,7 @@ https://www.allrecipes.com/recipe/268465/avocado-ricotta-crostini/
 * 5  radishes, sliced, or to taste
 * 1 pinch flaky sea salt
 * ½  lemon, juiced
-* kosher salt to taste  kosher salt to taste
+* kosher salt to taste
 * 1 pinch cayenne pepper, or to taste
 * 1 tablespoon finely sliced fresh basil
 * 1 teaspoon snipped fresh chives

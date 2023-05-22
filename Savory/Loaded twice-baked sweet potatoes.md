@@ -7,7 +7,7 @@ https://www.allrecipes.com/recipe/269177/loaded-twice-baked-sweet-potatoes/
 ### Ingredients
 
 ####   
-* freshly ground black pepper to taste  freshly ground black pepper to taste
+* freshly ground black pepper to taste
 * ⅓ cup sliced green onions
 * salt to taste  salt to taste
 * 2 tablespoons shredded sharp white Cheddar cheese, or to taste
