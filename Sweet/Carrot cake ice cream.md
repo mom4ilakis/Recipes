@@ -10,7 +10,7 @@ https://www.allrecipes.com/carrot-cake-ice-cream-recipe-7371979
 * 1 can (14 ounces) sweetened condensed milk
 * 1 1/4 teaspoons cinnamon
 * 2 1/4 cups heavy cream
-* 4  cream cheese
+* 4 ounces soft cream cheese
 * 1/3 cup chopped walnuts
 * 1 1/4  shredded carrots
 * 1/3  chopped pecans
